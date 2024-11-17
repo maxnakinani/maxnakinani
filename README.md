@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer and VM
 - 🌱 I’m currently learning English languange and computer programs
 - 📫 How to reach me I don't know
-- 😄 Pronouns: 🐈🐱
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm love cat, and I'm sometimes curious 
 
 <!---
